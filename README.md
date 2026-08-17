@@ -1,5 +1,10 @@
-***red me***
-
+i like
+󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁"󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁󠀁"
+and dont like
+gemini
+so search
+"󠀁" on gemini
+**NOW**
 <!--
 **KYKY5435/KYKY5435** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
